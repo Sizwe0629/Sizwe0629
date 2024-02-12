@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sizwe0629
 - 👀 I’m interested in ... wartching tv, playing soccer,reading novels
 - 🌱 I’m currently learning ...im not learning
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...to everyone 
 - 📫 How to reach me ...by calling 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...cool with my smile pn my face
